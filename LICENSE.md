@@ -1,4 +1,4 @@
-
+hooked hidden Scripts offers the most advanced hooked Script, with unlimited stamina and invisibility. Perfect for dominating any match.
 
 
 
